@@ -78,7 +78,7 @@ This document contains all Literature-in-English JAMB past questions from 2014 t
 - C. forty days
 - **D. eighteen months ✓**
 
-**Explanation:** According to the answer key, the correct answer is D (eighteen months).
+**Explanation:** The official JAMB answer key indicates D (eighteen months). However, note that in Shakespeare's text, Prospero states they have been on the island for twelve years (B). Candidates should follow the official JAMB answer for examination purposes.
 
 ---
 
@@ -266,7 +266,7 @@ This document contains all Literature-in-English JAMB past questions from 2014 t
 - C. South Africa
 - D. Ghana
 
-**Explanation:** Per the answer key, the correct answer is A.
+**Explanation:** The official JAMB answer key indicates A (Sierra-Leone). However, note that Jared Angira is actually a renowned Kenyan poet. Candidates should follow the official JAMB answer for examination purposes.
 
 ---
 
@@ -1230,7 +1230,7 @@ This document contains all Literature-in-English JAMB past questions from 2014 t
 - **C. Bigger ✓**
 - D. Max
 
-**Explanation:** Per the answer key, Bigger is identified as Mary's lover, though Jan is her actual boyfriend in the novel.
+**Explanation:** The official JAMB answer key indicates C (Bigger). However, note that in Richard Wright's Native Son, Jan Erlone is Mary's actual boyfriend/lover, not Bigger. Candidates should follow the official JAMB answer for examination purposes.
 
 ---
 
@@ -2182,7 +2182,7 @@ This document contains all Literature-in-English JAMB past questions from 2014 t
 - C. persuasive
 - D. pessimistic
 
-**Explanation:** Per the answer key, A is correct, though the novel is generally considered pessimistic/dystopian.
+**Explanation:** The official JAMB answer key indicates A (optimistic). However, note that George Orwell's Nineteen Eighty-Four is generally considered a pessimistic/dystopian novel. Candidates should follow the official JAMB answer for examination purposes.
 
 ---
 
